@@ -3,15 +3,11 @@
 I'm currently pursuing a Master's degree in XX at the Department of XX, XX University, XX.
 
 #### Email  
-<code>XX@XX.XX</code>  
-<code>XX@XX.XX</code>
+<code>2491732090@qq.com</code>  
 
 #### Education  
-**XX University**, Master of XX (XX – XX)  
+**Huazhong University of Sciense and Technology**, Master of Marine Engineering  
 • GPA: XX/XX  
-
-**XX University**, Exchange student <br>  
-• As a XX, represented my college as an outstanding student for a XX exchange program.  
 
 **XX University**, Honours Bachelor of XX (XX – XX)  
 • GPA: XX/XX (top XX%)  
