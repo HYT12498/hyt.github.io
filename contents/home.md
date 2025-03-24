@@ -7,6 +7,5 @@ I'm currently pursuing a Master's degree in Marine Engineering at the Department
 
 #### Education  
 **Huazhong University of Sciense and Technology**, Master of Marine Engineering  
-• GPA: 80/100 
 
 
